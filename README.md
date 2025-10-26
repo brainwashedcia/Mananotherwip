@@ -11,3 +11,9 @@
 ![IMG_6779](https://github.com/user-attachments/assets/0dcfa9eb-0f31-4113-8bf1-f6d7981f0683)
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ${\color{#9692b9}bell⠀or \space \color{#a4e7de}horangi \space \color{#9baec5}, ryu {}}$
+
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ [![Typing SVG](https://readme-typing-svg.demolab.com?font=Griffy&duration=3000&pause=1500&color=9AA8C2&width=435&lines=are+you+man+enough+%3F..;are+you+man+enough+%3F..;are+you+man+enough+%3F..;to+take+the+blame+for+this+.)](https://git.io/typing-svg)
+
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ${\color{#a4e7de} zzz \space this \space is \space the \space extnd \space one \space you \space can \space go \space check \space tigergomeow \space to \space se e \space the \space kon g \space one {}}$
