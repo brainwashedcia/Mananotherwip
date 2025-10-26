@@ -4,8 +4,10 @@
 
 ![IMG_6615](https://github.com/user-attachments/assets/421d74cb-3b68-4016-b37b-b4cce0db63bd)
 
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ${\color{#9baec5} best \space seen \space on \space laptop \space / \space tablet . {}}$
+
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![IMG 6766](https://github.com/user-attachments/assets/9041566f-6895-427c-83c5-6a45db2807e2)
 ![IMG_6799](https://github.com/user-attachments/assets/f1d64833-ee8d-4f80-872d-42162f3ae67c)
 ![IMG_6779](https://github.com/user-attachments/assets/0dcfa9eb-0f31-4113-8bf1-f6d7981f0683)
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ${\color{#9692b9}bell⠀or \space \color{#a4e7de}horangi \space \color{#9fc7d0}, ryu {}}$
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ${\color{#9692b9}bell⠀or \space \color{#a4e7de}horangi \space \color{#9baec5}, ryu {}}$
